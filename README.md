@@ -1,0 +1,2 @@
+# kanka69
+selamınaleyküm
